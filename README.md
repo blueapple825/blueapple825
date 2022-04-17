@@ -1,0 +1,2 @@
+- 둣1교 마이페이지: https://playentry.org/profile/61e4d5637f4507001a949cf2/
+- 이메일: blueapple8259@gmail.com
